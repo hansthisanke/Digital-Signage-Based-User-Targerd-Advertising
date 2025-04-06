@@ -1,6 +1,6 @@
 # Project Name : Digital Signage Based User Targeted Advertising
 
-[**Click here to visit our website**](https://viradhanus.github.io/Digital-Signage-Based-User-Targerd-Advertising/)
+[**Click here to visit our website**](https://cepdnaclk.github.io/e16-3yp-digital-signage-based-user-targeted-advertising/)
 
 
 
